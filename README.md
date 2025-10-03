@@ -45,9 +45,13 @@
 ---
 
 ## 📞 Get Started
-**Email:** your-thaiyibrasheed30@gmail 
-**Demo:** Available upon request  
+**Contact:** Taiyib - AI Solutions Architect  
+**Phone:** +974 3037 2761 
+**Email:** thaiyibrasheed30@gmail.com    
 **Delivery:** Immediate after payment  
+
+---
+*© 2024 Jarwish AI - Enterprise Grade AI Solutions* 
 
 ---
 *© 2024 Jarwish AI - Enterprise Grade AI Solutions*
