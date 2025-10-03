@@ -45,7 +45,7 @@
 ---
 
 ## 📞 Get Started
-**Email:** your-thaiyibrasheed30@gmail.com@gmail.com  
+**Email:** your-thaiyibrasheed30@gmail 
 **Demo:** Available upon request  
 **Delivery:** Immediate after payment  
 
