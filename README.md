@@ -36,7 +36,7 @@
 ---
 
 ## 💰 Pricing
-**One-Time License: $10,000**
+**One-Time License: 25,000 $**
 - Complete source code transfer
 - 1 year technical support
 - Installation documentation
